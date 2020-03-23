@@ -39,7 +39,7 @@ A semana foi ministrada pelo <b>Mestre Jedi</b> [Diego Fernandes](https://github
 
 ### :muscle: Quem deu aquela força para não desistir?
 
-[na comunidade da Rocketseat :rocket:](https://discordapp.com/invite/gCRAFhc)
+[Comunidade da Rocketseat :rocket:](https://discordapp.com/invite/gCRAFhc)
 
 ---
 
